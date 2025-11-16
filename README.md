@@ -1,6 +1,6 @@
 
 ![1000013157](https://github.com/user-attachments/assets/36bd1cd6-5d22-456c-aa01-f109f3346a46)
-he him
+ᴀ ᴅᴀʀɪɴɢ ɢᴀᴍʙʟᴇ ɪꜱ ʙᴇᴛᴛᴇʀ ᴛʜᴀɴ ʙᴇɪɴɢ ᴏᴠᴇʀʟʏ ᴄᴀᴜᴛɪᴏᴜꜱ.
 
 ꫂ ၴႅၴ i go for luix and lu
 
