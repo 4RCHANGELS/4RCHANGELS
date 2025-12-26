@@ -1,3 +1,4 @@
+![IMG_4346](https://github.com/user-attachments/assets/f0503022-1ccc-4a5d-bf96-25e9e37ec442)
 
 " may i lend you a hand? "
 
