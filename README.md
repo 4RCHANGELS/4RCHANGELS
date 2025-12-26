@@ -1,5 +1,5 @@
-https://files.catbox.moe/u0i82e.jpeg
-" may i lend a hand? "
+
+" may i lend you a hand? "
 
 ꫂ ၴႅၴ i go for luix and lu
 
