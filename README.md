@@ -1,4 +1,5 @@
 ![IMG_4346](https://github.com/user-attachments/assets/f0503022-1ccc-4a5d-bf96-25e9e37ec442)
+check out my new [rentry](https://rentry.co/winterfae) 
 
 "...an age when both the fae and humans roamed free in snezhnaya "
 
