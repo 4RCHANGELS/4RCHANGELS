@@ -1,7 +1,7 @@
 ![IMG_4346](https://github.com/user-attachments/assets/f0503022-1ccc-4a5d-bf96-25e9e37ec442)
-𝒄𝒉𝒆𝒄𝒌 𝒐𝒖𝒕 𝒎𝒚 𝒏𝒆𝒘 [𝒓𝒆𝒏𝒕𝒓𝒚](https://rentry.co/winterfae) 𝒎𝒂𝒅𝒆 𝒃𝒚 𝒎𝒚 𝒄𝒐𝒐𝒍𝒆𝒔𝒕 𝒚𝒖𝒘𝒊 𑣲
-
 "...an age when both the fae and humans roamed free in snezhnaya "
+
+𝒄𝒉𝒆𝒄𝒌 𝒐𝒖𝒕 𝒎𝒚 𝒏𝒆𝒘 [𝒓𝒆𝒏𝒕𝒓𝒚](https://rentry.co/winterfae) 𝒇𝒐𝒓 𝒎𝒐𝒓𝒆 𝒊𝒏𝒇𝒐𝒓𝒎𝒂𝒕𝒊𝒐𝒏 𝒂𝒏𝒅 𝒃𝒚𝒊. 𑣲
 
 ꫂ ၴႅၴ i go for luix and lu
 
